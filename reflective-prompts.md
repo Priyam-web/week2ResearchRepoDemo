@@ -3,6 +3,7 @@
 ### What is Timeboxing? Have you heard of it before? Will you use it?
 
 ### On a a 0-5 scale, how confident are you with each of the assignments?
+3
 
 ### What are of you proud of up to this point in the course?
 
